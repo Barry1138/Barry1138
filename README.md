@@ -2,6 +2,7 @@
 - 👀 I’m interested in Web Development, Web Design, Graphic Design, Politics, Economics, Science, and Digital Arts and Media 
 - 🌱 I’m currently learning Linux, Python, JavaScript, PHP and MySQL, SQL, HTML, and CSS
 - Also you can tell by my name that I'm a biological man and if you still need your stupid pronouns, that means you're a stupid leftist retard.
+- Plus if you hate Capitalism so much, you don't have any understanding or knowledge of economics at all and you are an economic illiterate. 
 
 <!---
 Barry1138/Barry1138 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
