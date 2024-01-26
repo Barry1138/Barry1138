@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Barry1138
-- 👀 I’m interested in Web Development, Web Design, Graphic Design, Politics, Economics, Science, and Digital Arts and Media 
+- 👀 I’m interested in Web Development, Web Design, Graphic Design, Politics, Economics, History, Science, and Digital Arts and Media 
 - 🌱 I’m currently learning Linux, Python, JavaScript, PHP and MySQL, SQL, HTML, and CSS
 - Also you can tell by my name that I'm a biological man and if you still need your stupid pronouns, that means you're a stupid leftist retard. There are only 2 genders and it is not natural to be gay, bi, or tranny. Sorry to tell you but no one is born that way. Do whatever you want as long as it doesn't infringe on the rights of others.
 - Plus if you hate Capitalism so much, you don't have any understanding or knowledge of economics at all and you are an economic illiterate.
